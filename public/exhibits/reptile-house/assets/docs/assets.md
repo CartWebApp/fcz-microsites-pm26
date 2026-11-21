@@ -18,6 +18,35 @@ https://www.zillarules.com/information/care-sheets/vietnamese-mossy-frog
 
 https://2.boredpanda.com/vietnamese-mossy-frogs/
 
+https://www.oriannesociety.org/news/eastern-indigo-snakes-released-2025/?v=f69b47f43ce4
+
+https://myfwc.com/wildlifehabitats/profiles/reptiles/snakes/eastern-indigo-snake/
+
+https://www.fws.gov/story/2023-07/eastern-indigo-snake
+
+https://seahistory.org/sea-history-for-kids/giant-tortoise/
+
+https://www.andbeyond.com/experiences/south-america/ecuador/galapagos/visiting-the-giant-tortoises-in-the-galapagos/
+
+https://animalia.bio/galapagos-tortoise
+
+https://commons.wikimedia.org/wiki/File:Map_of_the_Galapagos_tortoises.jpg
+
+https://www.rit.edu/news/galapagos-comes-life-new-rit-press-book
+
+https://www.backwaterreptiles.com/monitor-lizards/black-tree-monitor-for-sale.html
+
+https://factzoo.com/book/black-tree-monitor-intelligent-nervous-new-guinea/
+
+https://academy.herpeton.net/en/caresheets/monitor-lizards/varanus-macraei/
+
+https://nationalzoo.si.edu/animals/news/featured-creature-black-tree-monitor
+
+https://www.houstonzoo.org/explore/animals/black-breasted-leaf-turtle/
+
+https://stlzoo.org/animals/reptiles/turtles-and-tortoises/black-breasted-leaf-turtle
+
+https://www.zoo-leipzig.de/en/animal/black-breasted-leaf-turtle/
 
 Most of the animals information came from [Sacramento Zee](https://www.saczoo.org/animals) and [Zoo Atlanta](https://zooatlanta.org/).
 
@@ -36,7 +65,6 @@ Most of the animals information came from [Sacramento Zee](https://www.saczoo.or
 ![poison-dart-frog-Habitat-L](https://www.rainforestcruises.com/guides/poison-dart-frog-facts)
 
 ![poison-dart-frog-Habitat-R](https://www.expeditionart.org/poison-dart-frog)
-
 
 ![painted-terrapin-behavior](https://alchetron.com/Painted-terrapin)
 
