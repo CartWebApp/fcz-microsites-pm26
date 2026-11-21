@@ -37,3 +37,11 @@ Most of the animals information came from [Sacramento Zee](https://www.saczoo.or
 
 ![poison-dart-frog-Habitat-R](https://www.expeditionart.org/poison-dart-frog)
 
+
+![painted-terrapin-behavior](https://alchetron.com/Painted-terrapin)
+
+![painted-terrapin-description](https://alchetron.com/Painted-terrapin)
+
+![painted-terrapin-Habitat-R](https://alchetron.com/Painted-terrapin)
+
+![painted-terrapin-Habitat-L](https://turtlesurvival.org/species/painted-terrapin/)
